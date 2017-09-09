@@ -1,6 +1,6 @@
 # articolo-nozze
-Un articolo che descrive un aspetto delle nozze (il make-up della sposa). Questa è la continuazione dell'articolo descritto nel portale dove pubblico le notizie sul Wedding.
-
+Un articolo che descrive un aspetto delle nozze (il make-up della sposa). Questa è la continuazione dell'articolo descritto nel portale dove pubblico le notizie sul Wedding. Redatto da Cristina, una collaboratrice che scrive sul <A HREF=http://www.nozzespeciali.it/>matrimonio</A> in generale.
+ 
 ## Base viso
 Per un trucco di successo da dove partire se non dalla base viso? Una buona base viso deve essere fatta con prodotti di prim’ordine. Infatti oltre ad essere la base di tutto il make-up, ha lo scopo di nascondere le imperfezioni ed evitare la lucidità della pelle(soprattutto se il matrimonio verrà celebrato in un’afosa giornata d’estate). Occorre dare largo spazio, quindi, a primer opacizzante, fondotinta coprente e una cipria che fissi il tutto. A questo punto manca un leggero counturing e un velo di blush per avere una base perfetta, ma allo stesso tempo naturale (non bisogna eccedere con i prodotti in modo da evitare l’orribile effetto maschera).
 ### Trucco occhi
